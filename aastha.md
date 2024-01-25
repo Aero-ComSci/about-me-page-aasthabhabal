@@ -1,0 +1,3 @@
+Organized
+Dedicated
+Prioritizer 
